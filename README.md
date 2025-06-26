@@ -1,1 +1,1 @@
-# DataPoets (upcoming projcts)
+# DataPoets (upcoming projects)
